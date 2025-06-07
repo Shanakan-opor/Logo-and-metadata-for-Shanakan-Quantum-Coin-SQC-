@@ -1,0 +1,1 @@
+# Logo-and-metadata-for-Shanakan-Quantum-Coin-SQC-
